@@ -1,5 +1,5 @@
-### Jose B. Lanuza
+### Jose B. Lanuza   <a href="mailto:barragansljose@gmail.com"><img src="https://img.icons8.com/color/36/000000/gmail.png" alt="email"/></a>
+
 
 I work on plant :blossom: - pollinator :bee: interactions 
 
-  <a href="mailto:barragansljose@gmail.com"><img src="https://img.icons8.com/color/56/000000/gmail.png" alt="email"/></a>
