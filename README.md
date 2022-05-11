@@ -1,3 +1,3 @@
 ### Hi there, I'm Jose 👋
 
-I work on plant-pollinator interactions :blossom: -  :bee: 
+I work on plant :blossom: - pollinator :bee: interactions 
