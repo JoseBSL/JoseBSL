@@ -3,5 +3,5 @@
 
 Currently a member of [Bartomeus lab](https://bartomeuslab.com/) at [Estación Biológica de Doñana](http://www.ebd.csic.es/inicio)
 
-My work focus on plant :blossom: - pollinator :bee: interactions 
+My work focuses on plant :blossom: - pollinator :bee: interactions 
 
